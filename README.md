@@ -7,10 +7,12 @@ This is tmasuo GitHub account. This account is intended for just a personal casu
 
 [😉 Facebook](https://www.facebook.com/takumi.masuo)
 
-[💻 Hackerrank](https://www.hackerrank.com/tmasuo)
+[❄️ Snowflake Community](https://community.snowflake.com/s/profile/0053r00000AO21pAAD)
 
 [🗻 Trailblazer.me](https://trailblazer.me/id/tmasuo)
 
 [😽 Microsoft Learn](https://docs.microsoft.com/en-us/users/tmasuo/)
+
+[💻 Hackerrank](https://www.hackerrank.com/tmasuo)
 
 [🌏 Duolingo](https://www.duolingo.com/profile/tmasuo)
